@@ -4,3 +4,4 @@
 1/2 onion
 2 tbsp coriander
 no more coriander
+1 tsp salt
